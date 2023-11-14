@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jakecarman, a water resources engineering who switched gears to pursue aquatic ecology. I now work as an aquatic ecologist and water resources specialist.
+- 👋 Hi, I’m @jakecarman, a water resources engineer and aquatic ecologist.
 - 👀 I’m interested in fisheries science, aquatic ecology, marine science, mountain biking, hockey, home renovations and hiking with my Aussie.
 - 📫 How to reach me: jakecarman16@gmail.com
 
